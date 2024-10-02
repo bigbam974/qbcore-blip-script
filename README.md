@@ -10,7 +10,7 @@ qb-core script for adding blips anywhere
 
 ___YRNBAM
 
-join my discords
+join my discords for support
 
 --Cars&Things
 https://discord.gg/h3deXeGcBC
